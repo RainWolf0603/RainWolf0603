@@ -7,7 +7,7 @@
 
 - 🌱 I’m currently learning **Java, JavaScript, css**
 
-- 📫 How to talk to me **Discord Username: RainWolf#0001**
+- 📫 How to talk to me **Discord Username: RainWolf#9989**
 
 - ⚡ Fun fact **trash on everything**
 
